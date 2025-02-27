@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I'm Mukul Chauhan
 Developer Enthusiast<br>Full-stack Developer<br>Problem Solver<br>Learner & Creator<br>Tech Explorer<br>Passionate About Code<br>
 
 
